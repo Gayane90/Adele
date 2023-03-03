@@ -1,2 +1,0 @@
-# Adele
-My favorite singer
